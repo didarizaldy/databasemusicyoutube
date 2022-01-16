@@ -51,3 +51,24 @@ Music provided by NoCopyrightSounds.
 Watch: https://youtu.be/MqUCDzom5Xw
 Free Download / Stream: http://ncs.io/cantwait
 ```
+
+```
+Track: Jim Yosef & Alex Skrindo - Ruby
+Music provided by NoCopyrightSounds.
+Watch: https://youtu.be/Np-Y8ClGgRk
+Free Download / Stream: http://ncs.io/RubyID
+```
+
+```
+Track: Summer Was Fun & Laura Brehm - Prism
+Music provided by NoCopyrightSounds.
+Watch: https://youtu.be/Jp1Ka8ZmNFQ
+Free Download / Stream: http://ncs.io/PrismID
+```
+
+```
+Track: Vanze & Reunify - Angel (feat. Parker Polhill & Bibiane Z)
+Music provided by NoCopyrightSounds.
+Watch: https://youtu.be/A5UM2RCs63c
+Free Download / Stream: http://ncs.io/angel1
+```
